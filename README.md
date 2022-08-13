@@ -1,2 +1,2 @@
 # semestral_renee
-https://www.youtube.com/watch?v=MydEuyDMhttps://www.youtube.com/watch?v=MydEuyDM
+https://www.youtube.com/watch?v=dx-MydEuyDM&ab_channel=ReneeMariano
